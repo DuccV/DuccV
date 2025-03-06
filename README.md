@@ -5,6 +5,5 @@
   -Tiktok : Chx Có :)<br>
   -Kĩ năng:Không Có :)<br>
   -Facebook : https://www.facebook.com/profile.php?id=100081049247116<br>
-  -Ngyeu:Đếu Có :)<br>
-  -Đếu Ai Yêu :((
+  -Ngyeu:Thúy <br>
 </h3>
