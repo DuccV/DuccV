@@ -4,6 +4,6 @@
   -Roblox : DucNoOne1<br>
   -Tiktok : Chx Có :)<br>
   -Kĩ năng:Không Có :)<br>
-  -Facebook : https://www.facebook.com/profile.php?id=100081049247116<br>
+  -Facebook : <a href="https://www.facebook.com/profile.php?id=100081049247116">Đây nì</a><br>
   -Ngyeu:Thúy <br>
 </h3>
