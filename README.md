@@ -1,6 +1,6 @@
 <h3 class='text'>
   -NgDuc 💠<br>
-  -Code như l<br>
+  -Code như l + nhác<br>
   -Roblox : DucNoOne1<br>
   -Tiktok : Nhiều<br>
   -Kĩ năng:Không Có :)<br>
